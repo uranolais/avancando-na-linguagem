@@ -1,0 +1,1 @@
+#Arquivo de dicas, feito por Laís Urano
